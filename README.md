@@ -10,3 +10,28 @@
 
 ![Mireli's Github Stats](https://github-readme-stats.vercel.app/api?username=MireliDamaceno&count_private=true&show_icons=true&include_all_commits=true)
 ![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=MireliDamaceno&hide=TeX&layout=compact)
+
+
+|T|h|i|n|g|s||I||💚|:|
+| - | - | - | - | - | - | - | - | - | - | - |
+| | | || | | |`P`|| ||
+| | ||`F`||`C`| |`E`| |||
+| |`W`|`O`|`R`|`K`|`O`|`U`|`T`| | ||
+|| | |`I`| |`D`||`S`||||
+|| | |`E`||`E`|| || ||
+||`S`|`I`|`N`|`G`| || || ||
+|| ||`D`||||||||
+||`M`|`U`|`S`|`I`|`C`| | || | |
+|| | || |`Y`| || | | |
+|||`B`|`A`|`R`|`B`|`E`|`C`|`U`|`E`| |
+|| | || |`E`|| | | | |
+|| | | | |`R`|| | | |
+|| | | | |`S`|| | | | |
+|| | | | |`E`||| | | |
+|| | | | |`C`|| | || |
+|| | | | |`U`|| | || |
+|| | | | |`R`|| | || |
+|| | | | |`I`|| | || |
+|| | | | |`T`|| | || |
+|| | | | |`Y`|| | || |
+
